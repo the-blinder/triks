@@ -1,4 +1,4 @@
 #TRICKS
-**Authurised**
-no more boody kraks
-its not a logical solution
+**Authorised**
+no more boody cracks
+it's not a logical solution
